@@ -1,4 +1,4 @@
-# Random Para Nolep - SOON
+# Random Para Nolep - SEGEERA
 ## Start 2026
 ### My Little online Community: https://discord.gg/ufbRBRTKN8
 
